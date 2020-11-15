@@ -7,4 +7,4 @@ I'm LOOKING FOR CODING PARTNER(S) to help develop a new tech company. I have sev
 - I can take care of art and graphics, and have a strong background in design, photoshop, Adobe products, etc.
 - Any profits from the website, we'll split 50/50.
 
-DM me for questions and details.
+DM me for questions and details. Test test.
